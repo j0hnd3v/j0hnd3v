@@ -1,4 +1,4 @@
-### Hi there 👋
+### This man went to buy cigarettes in the 80s and never came back. Retrocomputing and bad jokes.
 
 <!--
 **j0hnd3v/j0hnd3v** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
